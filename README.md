@@ -1,4 +1,4 @@
-### Hi, I'm iNotLazo 👋
+### Hi, I'm Retrp 👋
 
 <br />
 
